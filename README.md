@@ -1,1 +1,0 @@
-# regina-divination-platform
